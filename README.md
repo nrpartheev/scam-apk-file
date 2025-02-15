@@ -1,1 +1,3 @@
 # scam-apk-file
+
+OPEN ONLY IN CONTROLLED ENVIRONMENT. 
